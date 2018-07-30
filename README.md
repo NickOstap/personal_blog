@@ -1,2 +1,0 @@
-# nickOstap.github.io
-portfolio
